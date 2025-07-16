@@ -53,7 +53,7 @@
 ## 📫 Contact Me
 
 - 📧 Email: [ramyahramzy@gmail.com](mailto:ramyahramzy@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/ramy-ramzy](https://www.linkedin.com/in/ramyramzy)
+- 💼 LinkedIn: [linkedin.com/in/ramyramzy](https://www.linkedin.com/in/ramyramzy)
 
 ---
 
